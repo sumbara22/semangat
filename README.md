@@ -1,2 +1,0 @@
-nama ismail
-alamat bendomungal 
